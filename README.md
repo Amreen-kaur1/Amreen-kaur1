@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Amreen-kaur1
-- 👀 I’m interested in coding and technology
+- 👀 I’m interested in coding and information technology
 - 🌱 I’m currently a 1st year bachelor's of computing science student.
 - 💞️ I’m looking to collaborate on various technical projects.
 - 📫 You may reach me out at my email id: siviaamreen2005@gmail.com
